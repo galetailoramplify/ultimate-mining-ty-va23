@@ -1,4 +1,4 @@
-#  
+#  Experience ultimate mining tycoon like never before with ultimate Scripts for ultimate mining tycoon, the #1 Script. Includes esp and silent aim for
 
 
 
